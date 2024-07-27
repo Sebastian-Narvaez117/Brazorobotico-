@@ -6,4 +6,3 @@
 
 ![wallpaperuse com-google-pixel-wallpaper-28071](https://github.com/user-attachments/assets/721e85d7-49c7-4e8e-bb56-4d22c2a6ffae)
 
-![wey](https://github.com/user-attachments/assets/fa44ff93-4087-4319-bbd4-716c9080b638)
